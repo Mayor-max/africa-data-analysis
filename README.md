@@ -1,2 +1,0 @@
-# africa-data-analysis
-
